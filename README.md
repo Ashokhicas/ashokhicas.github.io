@@ -1,1 +1,0 @@
-# ashokhicas.github.io
